@@ -1,0 +1,1 @@
+the effect in movies where the stars stretch out and looks cool
